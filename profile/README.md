@@ -4,7 +4,7 @@
 
 *Conquer Countries* is an exciting and immersive strategy game where players take on the role of a president, tasked with the responsibility of managing a nation. This Android game blends decision-making, economic growth, military strategy, and diplomatic relations into one comprehensive simulation. Whether you're aiming to conquer nations or secure peace, your choices directly shape the future of your country. *Conquer Countries* offers a deep and engaging experience for those who love strategic planning and critical thinking.
 
-### Download Now:👌 [Conquer Countries Mod APK](https://heyapks.com/conquer-countries.html)
+### Download Now:👌 [Conquer Countries APK](https://heyapks.com/conquer-countries.html)
 
 ### Features of *Conquer Countries*
 
